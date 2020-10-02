@@ -12,3 +12,8 @@
 11. the phantom menace 
 tell me what your favorite is!!!!
 
+Personally my favorite are the originals 
+1. Revenge of the Sith
+2. The Empire Strikes Back
+3. A New Hope
+They have a certain movie magic to them that the other haven't captured.
