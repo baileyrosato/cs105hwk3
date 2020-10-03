@@ -12,4 +12,4 @@
 11. the phantom menace 
 tell me what your favorite is!!!!<3
 
-
+My personal favorites are the original trilogy since they have a certain movie magic to them that the others don't.
